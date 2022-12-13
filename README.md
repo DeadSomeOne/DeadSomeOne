@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DeadSomeOne,
+- I have no idea what am doing with my life.
+- I like killing my disks by building roms, but still don't understand what am I doing.
+- I don't know how can you contact me.
